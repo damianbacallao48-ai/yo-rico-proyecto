@@ -1,0 +1,1 @@
+# yo-rico-proyecto
